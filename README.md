@@ -1,4 +1,4 @@
-<img src="https://otakunoblogg.files.wordpress.com/2017/03/botan_yusuke-yuyuhakusho.gif">
+<img src="https://www.google.com.br/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Ffaye-valent&psig=AOvVaw2aTft05MtjHwtdKwVyo7n2&ust=1666478618012000&source=images&cd=vfe&ved=0CA0QjRxqFwoTCMCV_q6u8foCFQAAAAAdAAAAABAU">
 
 ## Hi there 👋
 
